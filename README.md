@@ -13,23 +13,23 @@ https://weitongshipin.com
 ```
 # vg-g2  wtsp微同視頻最新域名：
 
-wtsp.lat
+https://wtsp.lat
 
-wtsp.mom
+https://wtsp.mom
 
-wtsp.lol
+https://wtsp.lol
 
-wtsp.buzz
+https://wtsp.buzz
 
-wtsp.one
+https://wtsp.one
 
-wtsp.sbs
+https://wtsp.sbs
 
-wtsp.top
+https://wtsp.top
 
-weitong.ink
+https://weitong.ink
 
-weitong.xyz
+https://weitong.xyz
 
-weitong.buzz
+https://weitong.buzz
 
