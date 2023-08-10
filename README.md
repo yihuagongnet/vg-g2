@@ -9,7 +9,7 @@ https://weitongshipin.com
 
 换个浏览器就可以打开，在多个浏览器试着打开下！
 
-也可以发邮件索取最新网址:yihuagongnet@gmail.com
+也可以发邮件索取最新网址:gvzaixian@gmail.com
 ```
 # vg-g2  wtsp微同視頻最新域名：
 
