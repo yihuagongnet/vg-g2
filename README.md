@@ -11,6 +11,11 @@ https://weitongshipin.com
 
 也可以发邮件索取最新网址:gvzaixian@gmail.com
 ```
+![image](https://github.com/yihuagongnet/vg-g1/assets/141849781/f197cd88-2a37-44fc-8940-d898f845249d)
+
+下载地址：https://weitongshipin.com/x
+
+**X瀏覽器集成並實現智能獲取本站最新的網址，再也不用擔心找不到本站的網址**
 # vg-g2  wtsp微同視頻最新域名：
 
 https://wtsp.quest （2023.8.16更新）
